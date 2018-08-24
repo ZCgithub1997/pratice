@@ -1,2 +1,2 @@
 # pratice
-用于练习
+FUCK sunck
